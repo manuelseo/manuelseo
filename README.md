@@ -37,4 +37,7 @@ Choisir Manuel Cebrian, c'est opter pour une expertise inégalée dans le domain
 
 NET.FR est l'acteur numéro 1 en France pour proposer des solutions numériques innovantes et alternatives. Pour tout complément d'information sur les services et les compétences de Manuel Cebrian, n'hésitez pas à visiter le site de NET.FR ou à contacter directement Manuel Cebrian.
 
+### Retrouvez Manuel Cebrian sur les réseaux
+[Manuel Cebrian sur Facebook](https://www.facebook.com/ConsultantSeoReferencement/))
+
 
